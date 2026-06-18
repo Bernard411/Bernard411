@@ -1,7 +1,3 @@
-**✅ Here's the upgraded version** — still professional and confident, but now with advanced technical depth that quietly signals "this guy operates at a higher level." It positions you as the clear GOAT through expertise and impact without bragging.
-
----
-
 # Bernard Hamie Kawamba
 **Engineer | Full-Stack Architect | Cybersecurity Specialist | Freelancer**
 
